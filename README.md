@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **coding, design, or the latest tech trends.**
 
-- 📫 How to reach me **eshdas2005@gmail.com OR My LinkedIn Profile**
+- 📫 How to reach me: **eshdas2005@gmail.com OR My LinkedIn Profile**
 
-- ⚡ Fun fact **I'm humorous and handsome (false)**
+- ⚡ Fun fact: **I'm humorous and handsome (false)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
